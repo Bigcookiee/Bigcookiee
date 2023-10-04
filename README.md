@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Bigcookiee
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning  Python
+- 💞️ I’m looking to collaborate on ... Anthing!!!!
+- 📫 How to reach me ...
+- Wilkinsaidan5@gmail.com
